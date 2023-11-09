@@ -1,1 +1,0 @@
-# VladyslavKalinin.github.io
